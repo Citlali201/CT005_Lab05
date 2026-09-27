@@ -1,1 +1,1 @@
-# CT005_Lab05
+#### CT005 – Lab05 – Lê Chí Tài – MSSV:B2605830 – Lớp học phần: TTNT-A1
